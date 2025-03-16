@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning math, programming 
 - 💞️ I’m looking to collaborate on azazazaza
 - 📫 How to reach me (никак)
-- 😄 Pronouns: пися
+- 😄 Pronouns: 
 - ⚡ Fun fact: 
 
 _______________________________________m8888888
