@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @Butriks
-- 👀 I’m interested in counter strike and need for speed
-- 🌱 I’m currently learning math, programming 
-- 💞️ I’m looking to collaborate on azazazaza
-- 📫 How to reach me (никак)
-- 😄 Pronouns: 
-- ⚡ Fun fact: 
+Fun fact: 
 
 _______________________________________m8888888
 ___________________________________mMoooooooM8888
